@@ -21,7 +21,7 @@ https://t.me/syfteem
 حظر 180 يوم,
 حظر حقوق النشر,
 
-بحسابي في التلقرام : @aldereey
+حسابي في التلقرام : @aldereey
 قنواتي:
 https://t.me/JJR5JJ
 https://t.me/syfteem
